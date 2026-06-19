@@ -58,5 +58,5 @@ English: intermediate.
 
 ## Contact
 
-LinkedIn: https://linkedin.com/in/joaodavies  
+LinkedIn: https://www.linkedin.com/in/joaodavies-/ 
 Email: joaodavies24@gmail.com
